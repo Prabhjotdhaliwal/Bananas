@@ -4,4 +4,4 @@
 * Arshdeep Kaur (1895972):"Don't die before you're dead"
 * **1898496 : Mahesh** *Here's to the crazy ones. ...*
 * Alekyavalisetty (1892744) : "Crazy one"
-* 1894829: Gurjot Kaur: "Love and family is life"
+* 1898475: :Anilkumar:"Your life is your message to the world. Make sur its inspiring"
