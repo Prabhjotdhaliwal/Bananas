@@ -17,3 +17,4 @@
 * 1895748: Aditya: "Music is life".
 * 1896566 Rashmeet Kaur: "I'm the best version of me when I'm with you."
 * 1895975 : akvinder kaur: "your best teacher is your last mistake"
+* 1895442 : Simranjeet kaur : " What you allows , will continue".
