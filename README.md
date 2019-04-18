@@ -1,5 +1,6 @@
 # Bananas
 * Akhil 1895748: "No One"
-* 1895253: VIDYA SAGAR :"Finding happiness"
+* Vidyasagar 1895253: "Finding happiness"
 * Arshdeep Kaur (1895972):"Don't die before you're dead"
-* **1898496 : Mahesh ** *Here's to the crazy ones. ...*
+* **1898496 : Mahesh** *Here's to the crazy ones. ...*
+* Alekyavalisetty (1892744) : "Crazy one"
