@@ -7,7 +7,7 @@
  
 * Manpreet Singh (1896507) : "I am who i am. Not who you think I am. Not who you want me to be. I am me.
 * (1896508) Tanya Chawla: "Do what is right, not what is easy"
-
+* 1896534: :Tagore Kommineni: "I live a pretty simple life"
 * 1898475: :Anilkumar: "Your life is your message to the world. Make sure its inspiring"
 
 
