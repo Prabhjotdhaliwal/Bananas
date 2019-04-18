@@ -19,7 +19,7 @@
 
 
 
-*1894829:Gurjot Kaur: "Love and family is everything for me."
+* 1894829:Gurjot Kaur: "Love and family is everything for me."
 
 
 
