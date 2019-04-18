@@ -12,3 +12,4 @@
 * (1895974): Arshdeep kaur : Good things never came in comfort zone.
 * 1894829 : Gurjot Kuar: "Love and family are everything for me."
 * 1895607 : Dalwinder Singh : "You should have good principles in life and always remember that and works on that , it doesn't matter what kind of principles is ,it makes your permanent personality"
+1896564: Amrit: "play badminton and live the best".
