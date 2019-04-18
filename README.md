@@ -10,4 +10,5 @@
 * 1896534: :Tagore Kommineni: "I live a pretty simple life"
 * 1898475: :Anilkumar: "Your life is your message to the world. Make sure its inspiring"
 * (1895974): Arshdeep kaur : Good things never came in comfort zone.
-* 1894829 : Gurjot Kaur: "Love and family are everything for me."
+* 1894829 : Gurjot Kuar: "Love and family are everything for me."
+* 1895607 : Dalwinder Singh : "You should have good principles in life and always remember that and works on that , it doesn't matter what kind of principles is ,it makes your permanent personality"
