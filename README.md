@@ -9,7 +9,7 @@
 * (1896508) Tanya Chawla: "Do what is right, not what is easy"
 * 1896534: :Tagore Kommineni: "I live a pretty simple life"
 * 1898475: :Anilkumar: "Your life is your message to the world. Make sure its inspiring"
-
+(1895974): Arshdeep kaur : Good things never came in comfort zone.
 
 
 
