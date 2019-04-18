@@ -9,3 +9,8 @@
 
 
 * 1898475: :Anilkumar: "Your life is your message to the world. Make sure its inspiring"
+
+
+
+
+* Harmanjeet Singh (1895605) : "Its always a good life"
