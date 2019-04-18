@@ -14,3 +14,4 @@
 * 1895607 : Dalwinder Singh : "You should have good principles in life and always remember that and works on that , it doesn't matter what kind of principles is ,it makes your permanent personality"
 * 1896564: Amrit: "play badminton and live the best".
 * 1896225: ANSHUL Kapoor: "Soaring high is my nature"
+* 1895748: Aditya: "Music is life".
