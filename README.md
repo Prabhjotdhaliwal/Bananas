@@ -1,4 +1,4 @@
 # Bananas
-* Akhil 1895748: "No One"
+* 1895748 Akhil: "If I speak of myself in different ways, that is because I look at myself in different ways"
 
-* **1898496 : Mahesh :** *A good teacher can inspire hope, ignite the imagination, and instill a love of learning. ...**
+
