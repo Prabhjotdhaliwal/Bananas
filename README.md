@@ -10,3 +10,4 @@
 * 1896534: :Tagore Kommineni: "I live a pretty simple life"
 * 1898475: :Anilkumar: "Your life is your message to the world. Make sure its inspiring"
 * (1895974): Arshdeep kaur : Good things never came in comfort zone.
+* 1896492: HARI PRASAD : “You Learn More From Failure Than From Success. Don’t Let It Stop You. Failure Builds Character.”
