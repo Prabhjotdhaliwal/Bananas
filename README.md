@@ -26,5 +26,5 @@
 
 
 
-* 1896225: Anshul KAapoor: "Soaring high is my nature" .
+* 1896225: Anshul Kapoor: "Soaring high is my nature" .
 
